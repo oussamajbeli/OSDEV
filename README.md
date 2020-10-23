@@ -1,2 +1,2 @@
 # OSDEV
-I'm working on my hard skills , I want to be a software developper
+I'm a programmer , I'm a student ,I don't work for any body.
